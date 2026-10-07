@@ -1,0 +1,2 @@
+# premium-wool-sculpt-001-wool-sculpture-core-armature
+Drowning in wool scraps, reference photos, and armature sketches with no system to track your sculpture progress? The Wool Sculpture &amp; Core Armature Felt Hub is a Notion template that centralizes every aspect of your fiber art practice—from core materials and felt techniques to finished pieces—so you can focus on creating, not searching.  This hub
